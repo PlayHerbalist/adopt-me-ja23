@@ -1,4 +1,4 @@
-
+Experience adopt me like never before with rare Script for adopt me, the #1 Script. Includes esp and no cooldown for unbeatable performance.
 
 
 
